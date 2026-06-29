@@ -1,4 +1,4 @@
-#  
+#  Experience bridger western like never before with bridger western automatic Scripts, the #1 Script. Includes speed and fly for unbeatable performance.
 
 
 
